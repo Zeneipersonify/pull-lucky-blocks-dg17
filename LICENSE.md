@@ -1,4 +1,4 @@
-#  
+#  pull lucky blocks Script automatic is the best pull lucky blocks Script, featuring instant win and private server access. Safe and powerful for all
 
 
 
